@@ -1,2 +1,4 @@
 # Shadow-monarch
-I am a Sigma boy. 
+I am a Boy. 
+I am nutrial.
+I am absolute.
